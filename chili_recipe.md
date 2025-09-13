@@ -1,4 +1,4 @@
-# Pinto Beans Chili
+# Dalton's Famous Chili Beans
 
 ## Ingredients
 - 3 Tbsp. Salt
